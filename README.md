@@ -1,1 +1,1 @@
-1 polling
+All Rights JOSHUA CLARK
